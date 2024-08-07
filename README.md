@@ -6,6 +6,7 @@ Standoff 2 is a shooter that will appeal to all fans of CS:GO. The game is very 
 The article presents a complete assembly: from changing skins to AIM and WH. We regularly check that the cheats are working and relevant for the latest version of the game Standoff 2. So if your friends ask how to cheat in standoff 2 , you can safely give a link to this guide.
 
 Cheat: https://t.me/+4DpkZxEOWvQwNGNi
+
 Here you can download working cheats for Standoff 2 for the current version of the game 0.29.1 for free. Installed AIM and WH on Standoff 2 0.29.1 on Android will allow you to easily climb to the top of the tournament table. Moreover , you can download current cheats for free from our site.
 
 To open the possibility of cheating in Standoff 2, you need to download a special hack file. It will open access to the secret features of the game.
